@@ -1,2 +1,3 @@
 # Ameya-and-Jahnvi
-snatched waist(malnutrition...lol)
+being IRL..!!
+BEING 
