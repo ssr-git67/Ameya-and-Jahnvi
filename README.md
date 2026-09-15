@@ -1,3 +1,4 @@
 # Ameya-and-Jahnvi
-being IRL..!!
-BEING 
+Being IRL..!!
+Snatched waist( malnutrition..lol )
+Building things with code..YAS!
