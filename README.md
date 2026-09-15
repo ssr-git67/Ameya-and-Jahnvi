@@ -1,2 +1,2 @@
 # Ameya-and-Jahnvi
-self intro
+snatched waist(malnutrition...lol)
