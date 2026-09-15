@@ -1,2 +1,2 @@
 # Ameya-and-Jahnvi
-self indro
+self intro
